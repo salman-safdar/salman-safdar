@@ -12,5 +12,5 @@ What I'm looking for:
 Frontend or WordPress developer roles (remote or contract).
 
 Contact:
-Phone no#: +923126810286
-Email: salmansafda47@gmail.com
+📧 Email: salmansafda47@gmail.com  
+📱 Phone: +92 312 6810286
