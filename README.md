@@ -39,7 +39,7 @@ I’m open to working on real‑world projects where I can grow and add value.
 
 ### 📫 Contact
 
-- 📧 Email: **salmansafda47@gmail.com**  
+- 📧 Email: **salmansafdardev@gmail.com**  
 - 📱 Phone: **+92 312 6810286**  
 - 💻 GitHub: https://github.com/salman-safdar
 
